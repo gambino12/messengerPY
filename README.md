@@ -1,1 +1,1 @@
-# GOSHA PIDOR
+# SANYA GAY
